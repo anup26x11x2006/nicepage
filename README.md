@@ -1,1 +1,1 @@
-# NICEpage made by anup.
+# NICEPage made by anup.
