@@ -1,1 +1,1 @@
-# NICEPAGE MADE By Anup.
+# NICEPAGE MADE BY Anup.
